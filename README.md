@@ -37,6 +37,7 @@ Doodle Jump also maintains an active presence on various social media platforms,
 ⚡[Pinterest](https://www.pinterest.com/doodlejump3d/)
 
 ⚡[Facebook](https://www.facebook.com/doodlejump.unblocked/)
+
 So, if you haven’t already, download Doodle Jump on your PC and experience the endless joy of jumping to new heights!
 
 <!--
