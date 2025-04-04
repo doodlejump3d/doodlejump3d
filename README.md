@@ -1,4 +1,4 @@
-## Doodle Jump: The Addictive Game That Took the World by Storm 👋
+## Doodle Jump: The Addictive Game That Took the World by Storm 
 When you think of addictive mobile games, Doodle Jump is likely one of the first titles that comes to mind. Originally designed for mobile platforms, this simple yet captivating game has successfully made its way to PC, where it continues to entertain players worldwide. In this article, we'll explore everything you need to know about Doodle Jump, from its gameplay mechanics to its evolution into a PC game, and what makes it stand out in the crowded world of video games.
 
 ### **The Evolution of Doodle Jump**
