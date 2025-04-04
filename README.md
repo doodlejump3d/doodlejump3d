@@ -1,6 +1,7 @@
 ## Doodle Jump: The Addictive Game That Took the World by Storm 
 When you think of addictive mobile games, Doodle Jump is likely one of the first titles that comes to mind. Originally designed for mobile platforms, this simple yet captivating game has successfully made its way to PC, where it continues to entertain players worldwide. In this article, we'll explore everything you need to know about Doodle Jump, from its gameplay mechanics to its evolution into a PC game, and what makes it stand out in the crowded world of video games.
-[Doodle Jump](https://lh3.googleusercontent.com/uG6Qvig7Pqm1dEnRRilP6c8zwCRKm278YActHOTEaZ25gVPKuL5z6pEuMaxhprSrTxfy_yZbUs7VvdNm1sZfe9tf=s1280-w1280-h800)
+
+![fnf-vs-doodle-jump-spring-v2](https://github.com/user-attachments/assets/5903279f-a1b7-4a81-af3c-220f66df5d53)
 ### **The Evolution of Doodle Jump**
 Doodle Jump was first released in 2009 by Lima Sky for iOS, and it immediately became a global sensation. The game’s unique blend of simplicity and challenge hooked millions of players across various platforms. The transition from mobile devices to PC was a natural progression, with the game maintaining its charm while adapting to the larger screen and new controls. By making the game available on platforms like Steam, Doodle Jump expanded its audience and became an iconic part of the casual gaming landscape.
 
