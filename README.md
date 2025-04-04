@@ -30,13 +30,13 @@ Additionally, Doodle Jump continues to benefit from its strong brand identity an
 In the world of gaming, it’s rare for a game to remain as iconic and beloved as Doodle Jump. Its addictive, simple gameplay, combined with its unique art style and endless replayability, has made it a mainstay in both the mobile and PC gaming scenes. Whether you’re playing for a few minutes or hours, Doodle Jump offers an enjoyable and casual gaming experience that never gets old. It’s a game that’s easy to pick up, hard to put down, and will continue to be a favorite for years to come.
 Doodle Jump also maintains an active presence on various social media platforms, engaging with its community and keeping fans updated. On platforms like Facebook, Twitter, and Instagram, Doodle Jump shares exciting game updates, special events, and fun content related to the game.
 
-⚡https://www.youtube.com/@doodlejump3d
+⚡[Youtube](https://www.youtube.com/@doodlejump3d)
 
-⚡https://x.com/doodlejump3d
+⚡[X](https://x.com/doodlejump3d)
 
-⚡https://www.twitch.tv/doodlejump3d/about
+⚡[Pinterest](https://www.pinterest.com/doodlejump3d/)
 
-⚡https://www.pinterest.com/doodlejump3d/
+⚡[Facebook](https://www.facebook.com/doodlejump.unblocked/)
 So, if you haven’t already, download Doodle Jump on your PC and experience the endless joy of jumping to new heights!
 
 <!--
